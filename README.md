@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VeganChicken97
+- 👋 Hi, I’m @VeganChicken97 aka Harun Soyyilmaz, 
 - 👀 I’m interested in ginger girls
 - 🌱 I’m currently learning something 
 - 💞️ I’m looking to collaborate on a huge project
